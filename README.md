@@ -1,4 +1,4 @@
-# Code-Dani
+# Daniel (Code-Dani)
 
 Hi, my name is Daniel and I’m 20 years old.
 
